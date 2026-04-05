@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm A Computer Science Major Student.<br>I'm learning C language and on the stage of before master.<br>I'm good at creative Thinking.<br>I'm looking forward to collaborate.<br>I'm Currently working on building a open world story Based Game.<br>Ask Me about any project Idea's Or how to work on them,or any Idea's in your project.<br>I'm interested in electronics.<br>My dream is to build an Robot.
+I'm A Computer Science Major Student.<br>I'm learning C language and on the stage of before master.<br>I'm good at creative Thinking.<br>I'm looking forward to collaborate.<br>I'm Currently working on building a open world story Based Game.<br>Ask Me about any project Idea's Or how to work on them,or any Idea's in your project.<br>I'm interested in electronics.<br>My dream is to build a Robot.
 
 
 ## 🌐 Socials:
